@@ -2,7 +2,7 @@
 
 ### 𝙨𝙤𝙪𝙧𝙘𝙚 𝙩𝙞𝙩𝙤 ɪꜱ ᴀ ᴛᴇʟᴇɢʀᴀᴍ ᴘʀᴏᴊᴇᴄᴛ ʙᴀꜱᴇᴅ ᴏɴ ᴘʏʀᴏɢʀᴀᴍ ꜰᴏʀ ᴘʟᴀʏ ᴍᴜꜱɪᴄꜱ ɪɴ ᴠᴄ ᴄʜᴀᴛꜱ...
 
-<p align="center"><a href="https://t.me/Q_oo_ll"><img src="https://t.me/YIY_UU/3" width="300"></a></p>
+<p align="center"><a href="https://t.me/Q_oo_ll"><img src="https://telegra.ph/file/742c050a8609e57a8fd94.jpg" width="300"></a></p>
 
 
 
